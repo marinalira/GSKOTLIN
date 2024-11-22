@@ -16,9 +16,9 @@
 
 Pesquisando "Marinho"
 
-![image](https://github.com/user-attachments/assets/b354db82-a73d-4aa7-b451-764cd48e0c88)
-
+![image](https://github.com/user-attachments/assets/cf484b6e-5f4f-40e7-97ab-1710b2e0c256)
 
 Adicionando sobre Lixo Eletrónico
 
-![image](https://github.com/user-attachments/assets/7054715e-57a1-47fb-b3d2-d08f7da54b06)
+![image](https://github.com/user-attachments/assets/8e766d4d-aa52-49ea-a684-651307a3249e)
+
